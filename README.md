@@ -1,1 +1,1 @@
-Welcome to MyCosh.co.uk
+Welcome to thecosh.co.uk
